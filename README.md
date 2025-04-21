@@ -4,4 +4,6 @@
 
 **Legajo: 209.065-0**
 
-**comisión K2151**
+**Comisión K2151**
+
+**Cursada: 2025 anual**
